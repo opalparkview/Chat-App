@@ -3,7 +3,6 @@
 
 # Contact US
 
-
 - Địa chỉ: Bùi Hữu Nghĩa, Bình Hòa, Thuận An, Bình Dương
 - Hotline: 0938279155
 - Email: opalparkviews@gmail.com
